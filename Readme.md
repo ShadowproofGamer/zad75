@@ -1,0 +1,1 @@
+Zadanie 73 ze zbioru zadań maturalnych CKE
